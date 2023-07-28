@@ -1,8 +1,3 @@
 # mattfirst
 hello to all 
-here is insruction
-bor
-
-
-xcvbbnh
-cvbjjjkkg
+here is insruct
